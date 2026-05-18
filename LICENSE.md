@@ -1,4 +1,4 @@
-# 
+# instant CCleaner for PC scripts is the best CCleaner for PC scripts with multi-monitor-support and disk-space-analysis. Safe, reliable, and optimized for maximum performance.
 
 
 
